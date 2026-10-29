@@ -1,2 +1,2 @@
-# Veronica Margarette P. Soltes - Portfolio
+# Portfolio
 Soltes, Veronica Margarette P.
